@@ -1,1 +1,1 @@
-# lgabz.github.io
+# http://lgabz.github.io
